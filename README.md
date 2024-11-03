@@ -17,4 +17,4 @@ With a strong affinity for problem-solving, I bring a strategic, analytical appr
 
 ## Connect with Me 📬
 - 📫 [Email](mailto:bledaradam11@gmail.com)
-- 🔗 [LinkedIn](https://www.linkedin.com/in/bledar-shala-79a3a2221/)
+- 🔗 [LinkedIn](https://www.linkedin.com/in/bledarshala/)
